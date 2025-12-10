@@ -1,0 +1,1 @@
+# Rainha_da_sofr-ncia
